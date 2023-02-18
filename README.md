@@ -1,6 +1,8 @@
 # Stop Cop City
 A collection of Stop Cop City/Defend the Atlanta Forest movement resources.
 
+![image](https://user-images.githubusercontent.com/125770974/219902725-e6e8a2d2-1b57-4986-9316-4ed922b2ff9d.png)
+
 ## What is Stop Cop City?
  - https://www.stopcopcitysolidarity.org/
  - https://defendtheatlantaforest.org/
