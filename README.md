@@ -18,6 +18,7 @@ A collection of Stop Cop City/Defend the Atlanta Forest movement resources.
 - April 13th, 2023: [UNC Law School Walkout for Jamie](https://twitter.com/cltuprising/status/1646570032284008456?s=46)
 - April 14th, 2023: [Week of Resilience Community Dinner](https://www.instagram.com/p/Cq3oskEpVP_/?igshid=YmMyMTA2M2Y=)
 - April 23rd, 2023: [Celebration of Tortuguita's Birthday Teach-in and Community Event](https://www.instagram.com/p/CrOad6GrCCR/?igshid=YmMyMTA2M2Y=)
+- June 8th, 2023: [Protest at Brasfield and Gorrie to Drop the Contract](https://twitter.com/cltuprising/status/1666815413500674049)
 
 ## What's next?
  - [It's a Welaunee Summer!!](https://www.instagram.com/p/CrLs5jXOSaQ/?igshid=YmMyMTA2M2Y=)
