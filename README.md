@@ -20,6 +20,7 @@ A collection of Stop Cop City/Defend the Atlanta Forest movement resources.
 - April 23rd, 2023: [Celebration of Tortuguita's Birthday Teach-in and Community Event](https://www.instagram.com/p/CrOad6GrCCR/?igshid=YmMyMTA2M2Y=)
 - June 8th, 2023: [Protest at Brasfield and Gorrie to Drop the Contract](https://twitter.com/cltuprising/status/1666815413500674049)
 - September 10th, 2023: [Protest at Bank of America Against RICO charges](https://x.com/seanmc_99/status/1701031765878394889?s=20)
+- January 31st, 2024: [Brasfield and Gorrie Put on Notice to Drop the Contract](https://x.com/defendATLforest/status/1752803615603863956?s=20)
 
 ## What's next?
  - [It's a Welaunee Summer!!](https://www.instagram.com/p/CrLs5jXOSaQ/?igshid=YmMyMTA2M2Y=)
